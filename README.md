@@ -53,5 +53,5 @@ This design is inspired by modern portfolio layouts and enhanced with ideas from
 📍 Aurangabad, Maharashtra  
 ✉️ nadimshaikh74161@gmail.com  
 🔗 [GitHub Profile](https://github.com/Nadeem-Shaikh12)  
-🔗 [LinkedIn](https://www.linkedin.com/in/your-linkedin-profile)
+🔗 [LinkedIn](https://www.linkedin.com/in/nadeem-shaikh-a8357a189?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BQ9dD1bCaQhaTX17Rjipv2Q%3D%3D)
 
